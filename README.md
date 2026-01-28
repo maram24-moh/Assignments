@@ -1,2 +1,1 @@
-مرام محمد الحمودي 
-نظم معلومات (IS)_G2
+Maram mohammed Al_Hamoudi_(IS)_G2
